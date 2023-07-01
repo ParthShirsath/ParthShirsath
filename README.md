@@ -8,7 +8,7 @@
 
 - 📫 How to reach me:- **parthshirsath09@gmail.com**
 
-- ⚡ Fun fact **I am Not Studying Computer Science But Computer Science Studies Me**
+- ⚡ Fun fact **I am Not Studying Computer Science But Computer Science Studies Me....**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
